@@ -12,6 +12,18 @@
 
 .°  ༘ 🐟 i love a lot of things, especially you *!* ⋆ 🪼 ₊˚ෆ
 
+![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+
+## ༘˚⋆𐙚 RULES ON MY PONIES ｡⋆𖦹.✧˚
+
+✩ Since I'm a little nicer than most others, copying my ponies are okay. I'll even post them every now and then here on GitHub since I'd like to do more contributions here that aren't so ,,, code-y at all LMAO 😭
+
+✩ When you do copy, please don't use the same name too ... _**AND DON'T TAKE CREDIT!!**_ This includes:
+> ★ When someone asks you who made it, it's @funariii!
+> ★ Reposting my ponies somewhere, especially for commercial use !!
+> ★ Taking the name of my pony and making it yours!
+
+✩ Just for safety precautions, I won't be diving into detail on how to make the pony. I will just be posting images and YOU figure out how to copy them (this is just to even out the difficulties of having to post my ponies here and then just to make them easily copy-able is heartbreaking 💔)
 
 ![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
@@ -31,7 +43,9 @@
 >.*⌗ . . nationality ;*
 ` ★ ` *Filipino* ! (i am eternally cursed)
 
-★ ★ ★  : INTERESTS
+![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+
+## ★ ★ ★  : INTERESTS
 
 ` x ` I really like :
 
@@ -61,7 +75,9 @@
 
 > ★ i'm a little socially anxious so if you hate people who don't talk much you're always free to ignore me!
 
-★ ★ ★  : WARN.
+![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+
+## ★ ★ ★  : WARN.
 
 ` x ` warn. list :
 
