@@ -19,9 +19,13 @@
 ✩ Since I'm a little nicer than most others, copying my ponies are okay. I'll even post them every now and then here on GitHub since I'd like to do more contributions here that aren't so ,,, code-y at all LMAO 😭
 
 ✩ When you do copy, please don't use the same name too ... _**AND DON'T TAKE CREDIT!!**_ This includes:
+>
 > ★ When someone asks you who made it, it's @funariii!
+>
 > ★ Reposting my ponies somewhere, especially for commercial use !!
+>
 > ★ Taking the name of my pony and making it yours!
+>
 
 ✩ Just for safety precautions, I won't be diving into detail on how to make the pony. I will just be posting images and YOU figure out how to copy them (this is just to even out the difficulties of having to post my ponies here and then just to make them easily copy-able is heartbreaking 💔)
 
