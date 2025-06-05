@@ -2,6 +2,20 @@
 
 ![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
+# BEFORE YOU READ:
+
+✩ I'd like to say if you ever want to talk to me on Ponytown and hit me with a message and I don't respond, I'm either AFK or just way too stimulated / socially exhausted / socially anxious to respond. I'm always free to friend requests so if you'd like to talk sooner or later, shoot me a request and I'll muster up my courage to try and chat back. I try my best around here.
+
+✩ I also have the habit of hitting my space key twice, so if you see me talking in chopped text "l ike this me ssa ge here", i'm really sorry i just have both a sensitive keyboard and shaky hands
+
+✩ I prefer watching others talk. Especially when I'm seated down somewhere.
+
+✩ In regards to the bullet above, if I'm beneath trees or hiding in places, I'm probably socially / mentally , exhausted / anxious / or both idk.
+
+✩ **I'm super self-conscious about my place in society so please don't think I lie about my social anxiety, I'm just always like that because I think whoever I talk to is always a higher lifeform than me to the point I feel unworthy of attention**
+
+![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)![image](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+
 ## ⋆˚꩜｡ linkz / socials ! ----
 
 ✩ https://www.twitch.tv/funariii/ -- twitch ! ![image](https://64.media.tumblr.com/1f72e6cc7dfba7ee91692336954f3122/e4f8c035f1add387-55/s75x75_c1/034128246f9796be9cd53cfd6ac3bc9d266e99c1.gifv)
