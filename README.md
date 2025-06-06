@@ -10,7 +10,9 @@
 
 ✩ I prefer watching others talk. Especially when I'm seated down somewhere.
 
-✩ In regards to the bullet above, if I'm beneath trees or hiding in places, I'm probably socially / mentally , exhausted / anxious / or both idk ... **!! I AM EXPLICITLY TRYING TO SAY DNIUID !!**
+✩ In regards to the bullet above, if I'm beneath trees or hiding in places, I'm probably socially / mentally , exhausted / anxious / or both idk ...
+> When the above (^^) happens, here's a list:
+> DNTUF (Do Not Interact Unless Friend), RPDNI, IWC, SVTD, DNT
 
 ✩ **I'm super self-conscious about my place in society so please don't think I lie about my social anxiety, I'm just always like that because I think whoever I talk to is always a higher lifeform than me to the point I feel unworthy of attention**
 
