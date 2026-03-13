@@ -20,7 +20,7 @@
 
 ## ⋆˚꩜｡ linkz / socials ! ----
 
-✩ https://www.twitch.tv/funariii/ -- twitch ! ![image](https://64.media.tumblr.com/1f72e6cc7dfba7ee91692336954f3122/e4f8c035f1add387-55/s75x75_c1/034128246f9796be9cd53cfd6ac3bc9d266e99c1.gifv)
+✩ https://www.twitch.tv/hx_xr3i -- twitch ! ![image](https://64.media.tumblr.com/1f72e6cc7dfba7ee91692336954f3122/e4f8c035f1add387-55/s75x75_c1/034128246f9796be9cd53cfd6ac3bc9d266e99c1.gifv)
 
 ✩ @funariii on __ponytown__! ![image](https://64.media.tumblr.com/51db1e61c49ae7d87b5e4fdc3e2def6c/e4f8c035f1add387-67/s75x75_c1/748e0c00c9e7dfce58737a125420a6f4e1559c0b.gifv)
 
@@ -49,10 +49,10 @@
 
 ## ゛intro.duction / info ⸝⸝ .ᐟ ⋆
 
-✩ DISC. -- This intro applies for both me, and my boyfriend "deadkin123", so anything you read here can be either of us. However personal information is always me!
-> ★ ★ ★  :  Heyo, I'm Nari!
+✩ DISC. -- This intro applies for both me, and my boyfriend "pzosi", or "evos" !, so anything you read here can be either of us. However personal information is always me!
+> ★ ★ ★  :  Heyo, I'm Ivos!
 
-> Certain friends can call me ` Franz, 'Ranz, or Funari ` !
+> Certain friends can call me ` Franz, 'Ranz, or Hex, even ` !
 
 >.*𖥔 ݁ ˖╭  dms status ;*
 ` ★ ` Pretty open! As long as it's relevant and won't seemingly waste my time, or asking for ` too personal information ` !
@@ -89,9 +89,7 @@
 
 > ★ proshippers, the exit is ctrl + w in your browser!
 
-> ★ please don't talk to me if you're easily offended, i tend to make really dark jokes
-
-> ★ don't dm me if you're an attention seeker
+> ★ please don't talk to me if you're easily offended (TOO WOKE FOR ME), i tend to make really dark jokes
 
 > ★ i'm a little socially anxious so if you hate people who don't talk much you're always free to ignore me!
 
@@ -101,19 +99,17 @@
 
 ` x ` warn. list :
 
-> ★ i don't like socializing but hey a for effort for me trying, if i'm awkward i don't know how to talk to people the right way (?), i do know best not to say anything that's wrong or f*cked up
+> ★ i don't like socializing but hey a for effort for me trying, if i'm awkward i don't know how to talk to people the right way (?), i do know best not to say anything that's wrong or too fucked up
 
-> ★ i'm always matching ponies ,,, with deadkinny 🥺 (kind of ?) , DON'T HIT ON ME PLEASE!!!!!! I'M SCARED!!!!
+> ★ i'm with someone already .... DON'T HIT ON ME PLEASE!!!!!! I'M SCARED!!!!
 
 > ★ i'm a little joke-y when i say i'm deathly afraid of women (i am), but i'm not joking when i say i'm deathly afraid of j^bs (please i cried writing that word down :( )
 
-> ★ i'm not always online, so i hope you're ready for a message every 7 days and i never ever fucking respond for the next 10 days
+> ★ i'm not always responsive because of my crippling attachment issues, so i hope you're ready for a message every 7 days and i never ever fucking respond for the next 10 days
 
 > ★ I'M A RESPONSIBLE PERSON IN SOCIETY; i have work and studies, i have college, i am NOT ALWAYS AROUNDSAJKHBDSAHJKDASHJKL
 
 > ★ i'm always a little too 'excited' when i chat with people who i have similar interests with !! i scream alot too :3
-
-> ★ i'm very sensitive to topics on r^pe or anything remotely near to that
 
 > ★ i have thalassophobia (as in like omori wow haha killing myse)
 
